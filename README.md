@@ -1,3 +1,3 @@
 # JRCC Instagram media
 
-Videos for the @jeddah_royals__ Instagram page (Jeddah Royals Cricket Club).
+Videos for the @jrcc.jeddah Instagram page (Jeddah Royals Cricket Club).
